@@ -1,1 +1,1 @@
-alors vous allez juste ouvrir le exe
+ vous allez juste ouvrir le exe
